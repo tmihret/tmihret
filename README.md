@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @tmihret
 - 👀 I’m interested in running, anime, soccer
 - 🌱 I’m currently learning computer science in Fordham University
-- 📫 How to reach me abc123tadael@gmail.com or tadael.private on instagram
+- 📫 How to reach me tadaelmihret@gmail.com or tadael.private on instagram
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I am a D1 track athlete
 
